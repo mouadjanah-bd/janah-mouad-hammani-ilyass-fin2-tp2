@@ -1,1 +1,0 @@
-# janah-mouad-hammani-ilyass-fin2-tp2
